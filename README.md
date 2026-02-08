@@ -15,6 +15,8 @@ Om transparantie te waarborgen en de kwaliteit van onze diensten te verifiëren,
 * 💡 **Community Support:** [Expert Q&A op Quora (NL)](https://nl.quora.com/profile/Nederland4k)
 * 🖼️ **Visuele Gidsen:** [4K Setup Borden op Pinterest](https://www.pinterest.com/bsnipvpro/)
 * 💼 **Professioneel Netwerk:** [Connect met ons op LinkedIn](https://www.linkedin.com/in/nederland-iptv-3846b33ab/)
+* cardd : [Connect met ons op cardd](https://iptv4knederland.carrd.co/)
+
 
 ---
 
